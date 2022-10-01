@@ -1,4 +1,4 @@
-# [NousheenShaik.github.io](https://NousheenShaik.github.io/)
+# [NousheenShaik.github.io](https://shaik-nousheen.github.io/NousheenShaik.github.io/)
 
 ## Sections 
   a. Profile \
